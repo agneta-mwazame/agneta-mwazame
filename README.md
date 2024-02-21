@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...anroid development
 - 💬 Ask me about ...my background
-- 📫 How to reach me: ...0112748855
+- 📫 How to reach me: ...agnetamwazame86@gmail.com
 - 😄 Pronouns: ...Her/she
 - ⚡ Fun fact: ...What God cant do doest exist
 -->
